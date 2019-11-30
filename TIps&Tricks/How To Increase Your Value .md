@@ -1,0 +1,4 @@
+- Read books.
+- Watch video tutorials.
+- Build projects that make people's lives easier.
+- Not only know more people but also help them more (add value to their lives).
